@@ -1,14 +1,24 @@
-1/4th cup of Nourish Milk
-150 gms of Butter
-150 gms of Powdered Sugar
-3 Eggs
-150 gms of Maida (All Purpose Flour)
-1 tbsp Cocoa Powder
-1 and a half tsp of Baking Powder
-1 tsp of Vanilla Essence
-2 tbsp of Red Colour
+# Ingredients required </br>
+### 1: 
+1/4th cup of Nourish Milk </br>
+### 2:
+150 gms of Butter </br>
+### 3:
+150 gms of Powdered Sugar </br>
+### 4:
+3 Eggs </br>
+### 5:
+150 gms of Maida (All Purpose Flour) </br>
+### 6:
+1 tbsp Cocoa Powder </br>
+### 7:
+1 and a half tsp of Baking Powder </br>
+### 8:
+1 tsp of Vanilla Essence </br>
+### 9:
+2 tbsp of Red Colour <br> <br> <hr>
 
-Toppings:
-100 gms of MILKMAID
-400 gms of Nourish Dahi
-1 tbsp of Butter
+## Toppings: </br>
+### 100 gms of MILKMAID </br>
+### 400 gms of Nourish Dahi </br>
+### 1 tbsp of Butter
